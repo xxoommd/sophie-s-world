@@ -111,3 +111,7 @@ No one was there. Suddenly she thought she heard a twig snap deep in the woods. 
 
 Sophie let herself into the house. She ran upstairs to her room and took out a big cookie tin full of pretty stones. She emptied the stones onto the floor and put both large envelopes into the tin. Then she hurried out into the garden again, holding the tin securely with both hands. Before she went she put some food out for Sherekan.
 
+"kitty, kitty, kitty!"
+
+Once back in the den she opened the second brown envelope and drew out the new typewritten pages.
+
