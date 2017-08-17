@@ -3,7 +3,7 @@
 * [Acknowledgments](README.md)
 * [Chapter.01 The Garden of Eden](chapter1.md)
 * [Chapter.02 The Top Hat](chapter02-the-top-hat.md)
-* Chapter.03 The Myths
+* [Chapter.03 The Myths](chapter03-the-myths.md)
 * Chapter.04 The Natural Philosophers
 * Chapter.05 Democritus
 * Chapter.06 Fate
