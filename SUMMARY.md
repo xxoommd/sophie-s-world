@@ -1,11 +1,11 @@
 # Summary
 
 * [Acknowledgments](README.md)
-* [Chapter.01 The Garden of Eden](chapter1.md)
+* [Chapter.01 The Garden of Eden](chapter01-the-garden-of-eden.md)
 * [Chapter.02 The Top Hat](chapter02-the-top-hat.md)
 * [Chapter.03 The Myths](chapter03-the-myths.md)
 * [Chapter.04 The Natural Philosophers](chapter04-the-natural-philosophers.md)
-* Chapter.05 Democritus
+* [Chapter.05 Democritus](chapter05-democritus.md)
 * Chapter.06 Fate
 * Chapter.07 Socrates
 * Chapter.08 Ahtens
