@@ -4,7 +4,7 @@
 * [Chapter.01 The Garden of Eden](chapter1.md)
 * [Chapter.02 The Top Hat](chapter02-the-top-hat.md)
 * [Chapter.03 The Myths](chapter03-the-myths.md)
-* Chapter.04 The Natural Philosophers
+* [Chapter.04 The Natural Philosophers](chapter04-the-natural-philosophers.md)
 * Chapter.05 Democritus
 * Chapter.06 Fate
 * Chapter.07 Socrates
