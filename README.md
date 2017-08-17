@@ -1,3 +1,6 @@
-# My Awesome Book
+# Acknowledgments {#acknowledgments}
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+This book would not have been possible without the support and encouragement of Siri Dan-Nevig. Thanks are also due to Maiken Ims for reading the manuscript and making useful comments, and to Trond Berg Eriksen for his trenchant observations and knowledgeable support through the years.
+
+J.G.
+
