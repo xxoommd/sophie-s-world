@@ -127,3 +127,19 @@ If a newborn baby could talk, it would probably say something about what an extr
 
 As words are gradually acquired, the child looks up and says "Bow-wow" every time it sees a dog. It jumps up and down in its stroller, waving its arms: "Bow-wow! Bow-wow!" We who are older and wiser may feel somewhat exhausted by the child's enthusiasm. "All right, all right, it's a bow-wow, " we say, unimpressed. We have seen a dog before.
 
+This rapturous performance may repeat itself hundreds of times before the child learns to pass a dog without going crazy.Or an elephant, or a hippopotamus. but long before the child learns to talk properly - and Ion before it learns to think philosophically - the world we have become a habit.
+
+A pity, if you ask me.
+
+My concern is that you do not grow up to be one of those people who take the world for granted, Sophie dear. So just to make sure, we are going to do a couple of experiments in thought before we begin on the course itself.
+
+Imagine that one day you are out for a walk in the woods. Suddenly you see a small spaceship on the path in front of you. A tiny Martian climbs out of the spaceship and stands on the ground looking up at you...
+
+What would you think? Never mind, it's not important. But have you ever given any thought to the fact that you are a Martian yourself?
+
+It is obviously unlikely that you will ever stumble upon a creature from another planet. We do not even know that there is life on other planets. But you might stumble upon yourself one day. You might suddenly stop short and see yourself in a completely new light. On just such a walk in the woods.
+
+I am an extraordinary being, you think. I am a mysterious creature.
+
+
+
