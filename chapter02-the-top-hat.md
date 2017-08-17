@@ -179,17 +179,17 @@ When Sophie's mother got home later that afternoon, Sophie was practically in sh
 
 She had never thought so hard before! She was no longer a child - but she wasn't really grown up either. Sophie realized that she had already begun to crawl down into the cozy rabbit's fur, the very same rabbit that had been pulled from the top hat of the universe. But the philosopher had stopped her. He - or was it a she? - had grabbed her by the back of the neck and pulled her up again to the tip of the fur where she hand played as a child. And there, on the outermost tips of the fine hairs, she was once again seeing the world as if for the very first time.
 
-The philosopher had rescued her. No doubt about it. The unknown letter writer had saved her from the triviality of everyday existence. 
+The philosopher had rescued her. No doubt about it. The unknown letter writer had saved her from the triviality of everyday existence.
 
 When Mom got home at five o'clock, Sophie dragged her into the living room and pushed her into an armchair.
 
 "Mom - don't you think it's astonishing to be alive?" she began.
 
-Her mother was so surprised that she didn't answer at first. Sophie was usually doing her homework when she got home. 
+Her mother was so surprised that she didn't answer at first. Sophie was usually doing her homework when she got home.
 
 "I suppose I do - sometimes," she said.
 
-"Sometimes? Yes, but - don' you think it's astonishing that the world exists at all?" 
+"Sometimes? Yes, but - don' you think it's astonishing that the world exists at all?"
 
 "Now look, Sophie. Stop talking like that."
 
@@ -209,11 +209,13 @@ Sophie saw that the philosopher was right. Grownups took the world for granted. 
 
 An anxious expression came over her mother's face. She did indeed go into the kitchen and put the potatoes on. After a while she came back into the living room, and this time it was she who pushed Sophie into an armchair.
 
+"There's something I must talk to you about," she began. Sophie could tell by her voice that it was something serious. "You haven't gotten yourself mixed up with drugs, have you, dear?"
 
+Sophie was just about to laugh, but she understood why the question was being brought up now.
 
+"Are you nuts?" she said. "That only makes you duller."
 
-
-
+No more was said that evening about either drugs or white rabbits.
 
 
 
