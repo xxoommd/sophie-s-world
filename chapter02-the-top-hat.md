@@ -113,5 +113,13 @@ Sophie let herself into the house. She ran upstairs to her room and took out a b
 
 "kitty, kitty, kitty!"
 
-Once back in the den she opened the second brown envelope and drew out the new typewritten pages.
+Once back in the den she opened the second brown envelope and drew out the new typewritten pages. She began to read.
+
+A STRANGE CREATURE
+
+Hello again! As you see, this short course in philosophy will come in handy-sized portions. Here are a few more introductory remarks:
+
+Did I say that the only thing we require to be good philosophers is the faculty of wonder? If I did not, I say it now: THE ONLY THING WE REQUIRE TO BE GOOD PHILOSOPHERS IS THE FACULTY OF WONDER.
+
+
 
