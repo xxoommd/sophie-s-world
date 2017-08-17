@@ -125,3 +125,5 @@ Babies have this faculty. That is not surprising. After a few short months in th
 
 If a newborn baby could talk, it would probably say something about what an extraordinary world it had come into. We see how it looks around and reaches out in curiosity to everything it sees.
 
+As words are gradually acquired, the child looks up and says "Bow-wow" every time it sees a dog. It jumps up and down in its stroller, waving its arms: "Bow-wow! Bow-wow!" We who are older and wiser may feel somewhat exhausted by the child's enthusiasm. "All right, all right, it's a bow-wow, " we say, unimpressed. We have seen a dog before.
+
