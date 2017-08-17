@@ -143,8 +143,13 @@ I am an extraordinary being, you think. I am a mysterious creature.
 
 You feel as if you are waking from an enchanted slumber. Who am I? You ask. You know that you are stumbling around on a planet in the universe. But what is the universe?
 
-Do you follow me, Sophie? Let's do another experiment in thought: 
+Do you follow me, Sophie? Let's do another experiment in thought:
 
-One morning, Mom, Dad, and little Thomas, aged two or three, are having breakfast in the kitchen. After a while Mom gets up and goes over to the kitchen sink, and Dad - yes, Dad - flies up and floats around under the ceiling while Thomas sits watching. What do you think Thomas says? Perhaps he points up at his father and says: "Daddy's flying!" Thomas will certainly be astonished, but then he very often is. Dad does so many strange things that this business of a little flight over the breakfast table makes no difference to him. Every day Dad shaves with a funny machine, sometimes he climbs onto the roof and turns the TV aerial - or else he sticks his head under the hood of the car and comes up black in the face.  
+One morning, Mom, Dad, and little Thomas, aged two or three, are having breakfast in the kitchen. After a while Mom gets up and goes over to the kitchen sink, and Dad - yes, Dad - flies up and floats around under the ceiling while Thomas sits watching. What do you think Thomas says? Perhaps he points up at his father and says: "Daddy's flying!" Thomas will certainly be astonished, but then he very often is. Dad does so many strange things that this business of a little flight over the breakfast table makes no difference to him. Every day Dad shaves with a funny machine, sometimes he climbs onto the roof and turns the TV aerial - or else he sticks his head under the hood of the car and comes up black in the face.
+
+Now it's Mom's turn. She hears what Thomas says and turns around abruptly. How do you think she reacts to the sight of Dad floating nonchalantly over the kitchen table?
+
+She drops the jam jar on the floor and screams with fright. She may even need medical attention once Dad has returned respectably to his chair. \(He should have learned better table manners by now!\) Why do you think Thomas and his mother react so differently?
+
 
 
