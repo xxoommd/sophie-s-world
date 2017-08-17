@@ -123,3 +123,5 @@ Did I say that the only thing we require to be good philosophers is the faculty 
 
 Babies have this faculty. That is not surprising. After a few short months in the womb they slip out into a brand-new reality. But as they grow up the faculty of wonder seems to diminish. Why is this? Do you know?
 
+If a newborn baby could talk, it would probably say something about what an extraordinary world it had come into. We see how it looks around and reaches out in curiosity to everything it sees.
+
