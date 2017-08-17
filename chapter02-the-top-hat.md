@@ -121,5 +121,5 @@ Hello again! As you see, this short course in philosophy will come in handy-size
 
 Did I say that the only thing we require to be good philosophers is the faculty of wonder? If I did not, I say it now: THE ONLY THING WE REQUIRE TO BE GOOD PHILOSOPHERS IS THE FACULTY OF WONDER.
 
-
+Babies have this faculty. That is not surprising. After a few short months in the womb they slip out into a brand-new reality. But as they grow up the faculty of wonder seems to diminish. Why is this? Do you know?
 
