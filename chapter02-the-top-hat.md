@@ -151,5 +151,99 @@ Now it's Mom's turn. She hears what Thomas says and turns around abruptly. How d
 
 She drops the jam jar on the floor and screams with fright. She may even need medical attention once Dad has returned respectably to his chair. \(He should have learned better table manners by now!\) Why do you think Thomas and his mother react so differently?
 
+It all has to do with habit. \(Note this!\) Mom has learned that people cannot fly. Thomas has not. He still isn't certain what you can and cannot do in this world.
+
+But what about the world itself, Sophie? Do you think it can do what it does? The world is also floating in space.
+
+Sadly it is not only the force of gravity we get used to as we grow up. The world itself becomes a habit in no time at all. It seems as if in the process of growing up we lose the ability to wonder about the world. And in doing so, we lose something central - something philosophers try to restore. For somewhere inside ourselves, something tells us that life is a huge mystery. This is something we once experienced, long before we leaned to think the thought.
+
+To be more precise: Although philosophical questions concern us all, we do not all become philosophers. For various reasons most people get so caught up in everyday affairs that their astonishment at the world gets pushed into the background. \(They crawl deep into the rabbit's fur, snuggle down comfortably, and stay there for the rest of their lives.\)
+
+To children, the world and everything in it is new, something that gives rise to astonishment. It is not like that for adults. Most adults accept the world as a matter of course.
+
+This is precisely where philosophers are a notable exception. A philosopher never gets quite used to the world. To him or her, the world continues to seem a bit unreasonable - bewildering, even enigmatic. Philosophers and small children thus have an important faculty in common. You might say that throughout his life a philosopher remains as thin-skinned as a child.
+
+So now you must choose, Sophie. Are you a child who has not yet become world-weary? Or are you a philosopher who will vow never to become so?
+
+If you just shake your head, not recognizing yourself as either a child or a philosopher, then you have gotten so used to the world that it no longer astonishes you. Watch out! You are on thin ice. And this is why you are receiving this course in philosophy, just in case. I will not allow you, of all people, to join the ranks of the apathetic and the indifferent. I want you to have an inquiring mind.
+
+The whole course is free of charge, so you get no money back if you do not complete it. If you choose to break off the course you are free to do so. In that case you must leave a message for me in the mailbox. A live frog would be eminently suitable. Something green, at least, otherwise the mailman might get scared.
+
+To summarize briefly: A white rabbit is pulled out of a top hat. Because it is an extremely large rabbit, the trick takes many billions of years. All mortals are born at the very tip of the rabbit's fine hairs, where they are in a position to wonder at the impossibility of the trick. But as they grow older they work themselves ever deeper into the fur. And there they stay. They become so comfortable they never risk crawling back up the fragile hairs again. Only philosophers embark on this perilous expedition. Some of them fall off, but others cling on desperately and yell at the people nestling deep in the snug softness, stuffing themselves with delicious food and drink.
+
+"Ladies and gentlemen," they yell, "we are floating in space!" But none of the people down there care.
+
+"What a bunch of troublemakers!" they say. And they keep on chatting: Would you pass the butter, please? How much have our stocks risen today? What is the price of tomatoes? Have you heard that Princess Di is expecting again?
+
+When Sophie's mother got home later that afternoon, Sophie was practically in shock. The tin containing the letters from the mysterious philosopher was safely hidden in the den. Sophie had tried to start her homework but could only sit thinking about what she had read.
+
+She had never thought so hard before! She was no longer a child - but she wasn't really grown up either. Sophie realized that she had already begun to crawl down into the cozy rabbit's fur, the very same rabbit that had been pulled from the top hat of the universe. But the philosopher had stopped her. He - or was it a she? - had grabbed her by the back of the neck and pulled her up again to the tip of the fur where she hand played as a child. And there, on the outermost tips of the fine hairs, she was once again seeing the world as if for the very first time.
+
+The philosopher had rescued her. No doubt about it. The unknown letter writer had saved her from the triviality of everyday existence. 
+
+When Mom got home at five o'clock, Sophie dragged her into the living room and pushed her into an armchair.
+
+"Mom - don't you think it's astonishing to be alive?" she began.
+
+Her mother was so surprised that she didn't answer at first. Sophie was usually doing her homework when she got home. 
+
+"I suppose I do - sometimes," she said.
+
+"Sometimes? Yes, but - don' you think it's astonishing that the world exists at all?" 
+
+"Now look, Sophie. Stop talking like that."
+
+"Why? Perhaps you think the world is quite normal?"
+
+"Well, isn't it? More or less, anyway."
+
+Sophie saw that the philosopher was right. Grownups took the world for granted. They had let themselves be lulled into the enchanted sleep of their humdrum existence once and for all.
+
+"You've just grown so used to the world that nothing surprises you any more."
+
+"What on earth are you talking about?"
+
+"I'm talking about you getting so used to everything. Totally dim, in other words."
+
+"All right. I'll put it another way. You've made yourself comfortable deep down in the fur of a white rabbit that is being pulled out of the universe's top hat right now. And in a minute you'll put the potatoes on. Then you'll read the paper and after half an hour's nap you'll watch the news on TV!"
+
+An anxious expression came over her mother's face. She did indeed go into the kitchen and put the potatoes on. After a while she came back into the living room, and this time it was she who pushed Sophie into an armchair.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
