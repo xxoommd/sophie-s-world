@@ -58,6 +58,68 @@ To put it in present-day terms, Thor and Loki are the gods' "anti-terrorist squa
 
 When the gods arrive at Jotunheim, the giants begin to prepare the wedding feast. But during the feast, the bride - Thor, that is - devours an entire ox and eight salmon. He also drinks three barrels of beer. This astonishes Thrym. The true identity of the "commandos" is very nearly revealed. But Loki manages to avert the danger by explaining that Freyja has been looking forward to coming to Jotunheim so much that she has not eaten for a week.
 
+When Thrym lifts the bridal veil to kiss the bride, he is startled to find himself looking into Thor's burning eyes. Once again Loki saves the situation by explaining that the bride has not slept for a week because she is so excited about the wedding. At this, Thrym commands that the hammer be brought forth and laid in the bride's lap during the wedding ceremony.
+
+Thor roars with laughter when he is given the hammer. First he kills Thrym with it, and then he wipes out the giants and all their kin. And thus the gruesome hostage affair has a happy ending. Thor - the Batman or James Bond of the gods - has once again conquered the forces of evil.
+
+So much for the myth itself, Sophie. But what is the real meaning behind it? It wasn't made up just for entertainment. The myth also tries to explain something. Here is one possible interpretation:
+
+When a drought occurred, people sought an explanation of why there was no rain. Could it be that the giants had stolen Thor's hammer?
+
+Perhaps the myth was an attempt to explain the changing seasons of the year: in the winter Nature dies because Thor's hammer is in Jotunheim. But in the spring he succeeds in winning it back. So the myth tried to give people an explanation for something they could not understand.
+
+But a myth was not only an explanation. People also carried out religious ceremonies related to the myths. We can imagine how people's response to drought or crop failure would be to enact a drama about the events in the myth. Perhaps a man from the village would dress up as a bride - with stones for breasts - in order to steal the hammer back from the giants. By doing this, people were talking some action to make it rain so the crops would grow in their fields.
+
+There are a great many examples from other parts of the world of the way people dramatized their myths of the seasons in order to speed up the processes of nature.
+
+So far we have only taken a brief glimpse at the world of Norse mythology. But there were countless myths about Thor and Odin, Freyr and Frey a, Hoder and Balder and many other gods. Mythological notions of this kind flourished all over the world until philosophers began to tamper with them.
+
+A mythological world picture also existed in Greece when the first philosophy was evolving. The stories of the Greek gods had been handed down from generation to generation for centuries. In Greece the gods were called Zeus and Apollo, Hera and Athene, Dionysos and Asclepios, Heracles and Hephaestos, to mention only a few of them.
+
+Around 700 B.C., much of the Greek mythology was written down by Homer and Hesiod. This created a whole new situation. Now That the myths existed in written form, it was possible to discuss them.
+
+The earliest Greek philosophers criticized Homer's mythology because the gods resembled mortals too much and were just as egoistic and treacherous. For the first time it was said that the myths were nothing but human notions.
+
+One exponent of this view was the philosopher Xenophanes, who lived from about 570 B.C. Men have created the gods in their own image, he said. They believe the gods were born and have bodies and clothes and language just as we have. Ethiopians believe that the gods are black and flat-nosed, Thracians imagine them to be blue-eyed and fair-haired. If oxen, horses, and lions could draw, the would depict gods that looked like oxen, horses, and lions!
+
+During that period the Greeks founded many city-states, both in Greece itself and in the Greek colonies in Southern Italy and Asia Minor, where all manual work was done by slaves, leaving the citizens free to devote all their time to politics and culture.
+
+In these city environments people began to think a completely new way. Purely on his own behalf, any citizen could question the way society ought to be organized. Individuals could thus also ask philosophical questions without recourse to ancient myths.
+
+We call this the development from a mythological mode of thought to one based on experience and reason. The aim of the early Greek philosophers was to find natural, rather than supernatural, explanations for natural processes.
+
+Sophie left the den and wandered about in the large garden. She tried to forget what she had learned at school, especially in science classes.
+
+If she had grown up in this garden without knowing anything at all about nature, how would she feel about the spring?
+
+Would she try to invent some kind of explanation for why it suddenly started to rain one day? Would she work out some fantasy to explain where the snow went and why the sun rose in the morning?
+
+Yes, she definitely would. She began to make up a story: 
+
+Winter held the land in its icy grip because the evil Muriat had imprisoned the beautiful Princess Sikita in a cold prison. But one morning the brave Prince Bravato came and rescued her. Sikita was so happy that she began to dance over the meadows, singing a song she had composed inside the dank prison. The earth and the trees were so moved that all the snow turned into tears. But then the sun came out and dried all the tears away. The birds imitated Sikita's song, and when the beautiful princess let down her golden tresses, a few locks of her hair fell onto the earth and turned into the lilies of the field...
+
+Sophie liked her beautiful story. If she had not known any other explanation for the changing seasons, she felt sure she would have come to believe her own story in the end.
+
+She understood that people had always felt a need to explain the processes of nature. Perhaps they could not live without such explanations. And that they made up all those myths in the time before there was anything called science.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
