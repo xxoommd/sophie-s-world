@@ -82,7 +82,7 @@ The first philosopher we know of is Thales, who came from Miletus, a Greek colon
 
 Thales thought that the source of all things was water. We do not know exactly what he meant by that, he may have believed that all life originated from water - and that all life returns to water again when it dissolves.
 
-During his travels in Egypt he must have observed how the crops began to grow as soon as the floods of the Nile receded from the land areas in the Nile Delta. Perhaps he also noticed that frogs and worms appeared wherever it had just been raining. 
+During his travels in Egypt he must have observed how the crops began to grow as soon as the floods of the Nile receded from the land areas in the Nile Delta. Perhaps he also noticed that frogs and worms appeared wherever it had just been raining.
 
 It is likely that Thales thought about the way water turns to ice or vapor - and the turns back into water again.
 
@@ -110,31 +110,55 @@ This unshakeable faith in human reason is called rationalism. A rationalist is s
 
 All Things Flow
 
+A contemporary of Parmendies was Heraditus \(c. 540 - 480 B.C.\), who was from Ephesus in Asia Minor. He thought that constant change, or flow, was in fact the most basic characteristic of nature. We could perhaps say that Heraclitus had more faith in what he could perceive than Parmendies did.
 
+"Everything flows," said Heraclitus. Everything is in constant flux and movement, nothing is abiding. Therefor we "cannot step twice into the same river." When I step into the river for the second time, neither I nor the river are same.
 
+Heraclitus pointed out that the world is characterized by opposites. If we were never ill, we would not know what it was to be well. If we never knew hunger, we would take no pleasure in being full. If there were never any war, we would not appreciate peace. And if there were no winter, we would never see the spring.
 
+Both good and bad have their inevitable place in the order of things, Heraclitus believed. Without this constant interplay of opposites the world would cease to exist.
 
+"God is day and night, winter and summer, war and peace, hunger and satiety," he said. He used the term "God," but he was clearly not referring to the gods of the mythology. To Heraclitus, God - or the Deity - was something that embraced the whole world. Indeed, God can be seen most clearly in the constant transformations and contrasts of nature.
 
+Instead of the term "God," Heraclitus often used the Greek word logos, meaning reason. Although we humans do not always think alike or have the same degree of reason, Heraclitus believed that there must be a kind of "universal reason" guiding everything that happens in nature.
 
+This "universal reason" or "universal law" is something common to us all, and something that everybody is guided by. And yet most people live by their individual reason, thought Heraclitus. In general, he despised his fellow beings. "The opinions of most people," he said, "are like the playthings of infants."
 
+So in the midst of all nature's constant flux and opposites, Heraclitus saw an Entity or oneness. This "something," which was the source of everything, he called God or logos.
 
+Four Basic Elements
 
+In one way, Parmendies and Heraclitus were the direct opposite of each other. Parmendies' reason made it clear that nothing could change. Heraclitus' sense perceptions made it equally clear that nature was in a constant state of change. Which of them was right? Should we let reason dictate or should we rely on our senses?
 
+Parmendies and Heraclitus both say two things:
 
+Parmendies says:
 
+a\) that nothing can change, and
 
+b\) that our sensory perceptions must therefore be unreliable.
 
+Heraclitus, on the other hand, says:
 
+a\) that everything changes \("all things flow"\), and
 
+b\) that our sensory perceptions are reliable.
 
+Philosophers could hardly disagree more than that! But who was right? It fell to Empedocles \(c. 490 - 430 B.C.\) from Sicily to lead the way out of the tangle they had gotten themselves into.
 
+He thought they were both right in one of their assertions but wrong in the other.
 
+Empedocles found that the cause of their basic disagreement was that both philosophers had assumed the presence of only one element. If this were true, the gap between what reason dictates and what "we can see with our own eyes" would be unbridgeable.
 
+Water obviously cannot turn into a fish or a butterfly. In fact, water cannot change. Pure water will continue to be pure water. So Parmenides was right in holding that "nothing changes."
 
+But at the same time Empedocles agreed with Heraclitus that we must trust the evidence of our senses. We must believe what we see, and what we see is precisely that nature changes.
 
+Empedocles concluded that it was the idea of a single basic substance that had to be rejected. Neither water nor air alone can change into a rosebush or a butterfly. The source of nature cannot possibly be one single "element."
 
+Empedocles believed that all in all, nature consisted of four elements, or "roots" as he termed them. These four roots were earth, air, fire, and water.
 
-
+All nature processes were due to the coming together and separating of these four elements. For all things were a mixture of earth, air, fire, and water, but in varying proportions. When a flower or an animal dies, he said, the four elements separate again. We can register these changes with the naked eye. But earth and air, fire and water remain everlasting, "untouched" by all the compounds of which they are part. So it is not correct to say that "everything" changes. Basically, nothing changes. What happens is that the four elements are combined and separated - only to be combined again.
 
 
 
