@@ -6,7 +6,7 @@
 * [Chapter.03 The Myths](chapter03-the-myths.md)
 * [Chapter.04 The Natural Philosophers](chapter04-the-natural-philosophers.md)
 * [Chapter.05 Democritus](chapter05-democritus.md)
-* Chapter.06 Fate
+* [Chapter.06 Fate](chapter06-fate.md)
 * Chapter.07 Socrates
 * Chapter.08 Ahtens
 * Chapter.09 Plato
