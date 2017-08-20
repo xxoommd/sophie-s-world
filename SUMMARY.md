@@ -7,7 +7,7 @@
 * [Chapter.04 The Natural Philosophers](chapter04-the-natural-philosophers.md)
 * [Chapter.05 Democritus](chapter05-democritus.md)
 * [Chapter.06 Fate](chapter06-fate.md)
-* Chapter.07 Socrates
+* [Chapter.07 Socrates](chapter07-socrates.md)
 * Chapter.08 Ahtens
 * Chapter.09 Plato
 * Chapter.10 The Major's Cabin
