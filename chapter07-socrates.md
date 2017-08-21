@@ -244,7 +244,7 @@ Finally she said, "Is this something you've learned at school?"
 
 Sophie shook her head energetically.
 
-"We don't learn anything there. The difference between school teachers and philosophers is that school-teachers think they know a lot of stuff that they try to force down our throats. Philosophers try to figure things out together with the pupils."
+"We don't learn anything there. The difference between school-teachers and philosophers is that school-teachers think they know a lot of stuff that they try to force down our throats. Philosophers try to figure things out together with the pupils."
 
 "Now we're back to white rabbits again! You know something? I demand to know who your boyfriend really is. Otherwise I'll begin to think he is a bit disturbed."
 
@@ -269,60 +269,4 @@ Her mother had put all the groceries away. Now she took the newspaper and went i
 Sophie finished doing the dishes and went upstairs to her room. She had put the red silk scarf on top shelf of the closet with the Lego blocks. She took it down and examined it carefully.
 
 Hilde ...
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
