@@ -144,6 +144,148 @@ Even during his lifetime he was considered somewhat enigmatic, and fairly soon a
 
 We know for a certainty that he was extremely ugly. He was potbellied, and had bulging eyes and a snub nose. But inside he was said to be "perfectly delightful." It was also said of him that "you can seek him in the present, you can seek him in the past, but you will never find his equal." Nevertheless he was sentenced to death for his philosophical activities.
 
+The life of Socrates is mainly known to us through the writings of Plato, who was one of his pupils and who became one of the greatest philosophers of all time. Plato wrote a number of Dialogues, or dramatized discussion on philosophy, in which he uses Socrates as his principal character and mouthpiece.
+
+Since Plato is putting his own philosophy in Socrates' mouth, we cannot be sure that the words he speaks in the dialogues were ever actually uttered by him. So it is no easy matter to distinguish between the teachings of Socrates and the philosophy of Plato.  Exactly the same problem applies to many other historical persons who left no written accounts. The classic example, of course, is Jesus. We cannot be certain that the "historical" Jesus actually spoke the words that Matthew or Luke ascribed to him. Similarly, what the "historical" Socrates actually said will always be shrouded in mystery.
+
+But who Socrates "really" was is relatively unimportant. It is Plato's portrait of Socrates that has inspired thinkers in the Western world for nearly 2,500 years.
+
+The Art of Discourse
+
+The essential nature of Socrates' art lay in the fact that he did not appear to want to instruct people. On the contrary he gave the impression of one desiring to learn from those he spoke with. So instead of lecturing like a traditional schoolmaster, he discussed.
+
+Obviously he would not have become a famous philosopher had he confined himself purely to listening to others. Nor would he have been sentenced to death. But he just asked questions, especially to begin a conversation, as if he knew nothing. In the course of the discussion he would generally get his opponents to recognize the weakness of their arguments, and, forced into a corner, they would finally be obliged to realize what was right and what was wrong.
+
+Socrates, whose mother was a midwife, used to say that his art was like the art of the midwife. She does not herself give birth to the child, but she is there to help during its delivery. Similarly, Socrates saw his task as helping people to "give birth" to the correct insight, since real understanding must come from within. It cannot be imparted by someone else. And only the understanding that comes from within can lead to true insight.
+
+Let me put it more precisely: The ability to give birth is a natural characteristic. In the same way, everybody can grasp philosophical truths if they just use their innate reason. Using your innate reason means reaching down inside yourself and using what is there.
+
+By playing ignorant, Socrates forced the people he met to use their common sense. Socrates could feign ignorance - or pretend to be dumber than he was. We call this Socratic irony. This enabled him to continually expose the weaknesses in people's thinking. He was not averse to doing this in the middle of the city square. If you met Socrates, you thus might end up being made a fool of publicly.
+
+So it is not surprising that, as time went by, people found hime increasingly exasperating, especially people who had status in the community. "Athens is like a sluggish horse," he is reputed to have said, "and I am the gadfly trying to sting it into life."
+
+\(What do we do with gadflies, Sophie?\)
+
+A Divine Voice
+
+It was not in order to torment his fellow beings that Socrates kept on stinging them. Something within him left him no choice. He always said that he had a "divine voice" inside him. Socrates protested, for example, against having any part in condemning people to death. He moreover refused to inform on his political enemies. This was eventually to cost him his life.
+
+In the year 399 B.C. he was accused of "introducing new gods and corrupting the youth," as well as not believing in the accepted gods. With a slender majority, a jury of five hundred found him guilty.
+
+He could very likely have appealed for leniency. At least he could have saved his life by agreeing to leave Athens. But had he done  this he would not have been Socrates. He valued his conscience - and the truth - higher than life. He assured the jury that he had only acted in the best interests of the state. He was nevertheless condemned to drink hemlock. Shortly thereafter, he drank the poison in the presence of his friends, and died.
+
+Why, Sophie? Why did Socrates have to die? People have been asking this question for 2,400 years. However, he was not the only person in history to have seen things through to the bitter end and suffered death for the sake of their convictions.
+
+I have mentioned Jesus already, and in fact there are several striking parallels between them.
+
+Both Jesus and Socrates were enigmatic personalities, also to their contemporaries. Neither of them wrote down their teachings, so we are forced to rely on the picture we have of them from their disciples. But we do know that they were both masters of the art of discourse. They both spoke with a characteristic self-assuredness that could fascinate as well as exasperate. And not least, they both believed that they spoke on behalf of something greater than themselves. They challenged the power of the community by criticizing all forms of injustice and corruption. And finally - their activities cost them their lives.
+
+The trials of Jesus and Socrates also exhibit clear parallels.
+
+They could certainly both have saved themselves by appealing for mercy, but they both felt they had a mission that would have been betrayed unless they kept faith to the bitter end. And by meeting their death so bravely they commanded an enormous following, also after they had died.
+
+I do not mean to suggest that Jesus and Socrates were alike. I am merely drawing attention to the fact that they both had a message that was inseparably linked to their personal courage.
+
+A Joker in Athens
+
+Socrates, Sophie! We aren't done with him yet. We have talked about his method.But what was his philosophical project?
+
+Socrates lived at the same as the Sophists. Like them, he was more concerned with man and his place in society than with the forces of nature. As a Roman philosopher, Cicero, said of him a few hundred years later, Socrates "called philosophy down from the sky and established her in the towns and introduced her into homes and forced her to investigate life, ethics, good and evil."
+
+But Socrates differed from the Sophists in on significant way. He did not consider himself to be a "sophist" - that is, a learned or wise person. Unlike the Sophists, he did not teach for money. No, Socrates called himself a philosopher in the true sense of the word. A "philosopher" really means "one who loves wisdom."
+
+Are you sitting comfortably, Sophie? Because it is central to the rest of this course that you fully understand the difference between a sophist and a philosopher. The Sophists took money for their more or less hairsplitting expoundings, and sophists of this kind have come and gone from time immemorial. I am referring to all the schoolmasters and self-opinionated know-it-alls who are satisfied with what little they know, or who boast of knowing a whole lot about subjects they haven't the faintest notion of. You have probably come across a few of these sophists in your young life. A real philosopher, Sophie, is a completely different  kettle of fish - the direct opposite, in fact. A philosopher knows that in reality he knows very little. That is why he constantly strives to achieve true insight. Socrates was one of these rare people. He knew that he knew nothing about life and about the world. And now comes the important part: it troubled him that he knew so little.
+
+A philosopher is therefore someone who recognizes that there is a lot he does not understand, and is troubled by it. In that sense, he is still wiser that all those who brag about their knowledge of things they know nothing about. "Wisest is she who knows she does not know," I said previously. Socrates himself said, "One thing only I know, and that is that I know nothing."
+
+Remember this statement, because it is an admission that is rare, even among philosophers. Moreover, it can be so dangerous to say it in public that is can cost you you life. The most subversive people are those who ask questions. Giving answers is not nearly as threatening. Any one question can be more explosive than a thousand answers.
+
+You remember the story of the emperor's new clothes? The emperor was actually stark naked but none of his subjects dared say so. Suddenly a child burst out, "But he's got nothing on!" That was a courageous child, Sophie. Like Socrates, who dared tell people how little we humans know. The similarity between children and philosophers is something we have already talked about.
+
+To be precise: Mankind is faced with a number of difficult questions that we have no satisfactory answers to. So now two possibilities present themselves: We can either fool ourselves and the rest of the world by pretending that we know all there is to know, or we can shut our eyes to the central issues once and for all and abandon all progress. In this sense, humanity is divided. People are, generally speaking, either dead certain or totally indifferent. \(Both types are crawling around deep down in the rabbit's fur!\)
+
+It is like dividing a deck of cards into two piles, Sophie. You lay the black cards in on pile and the rad in the other. But from time to time a joker turns up that is neither heart nor club, neither diamond nor spade. Socrates was this joker in Athens. He was neither certain nor indifferent. All he knew was that he knew nothing - and it troubled him. So he became a philosopher - someone who does not give up but tirelessly pursues his quest for truth.
+
+An Athenian is said to have asked the oracle at Delphi who the wisest man in Athens was. The oracle answered that Socrates of all mortals was the wisest. When Socrates heard this he was astounded, to put it mildly. \(He must have laughed, Sophie!\) He went straight to the person in the city whom he, and everyone else, thought was excessively wise. But when it turned out that this person was unable to give Socrates satisfactory answers to his questions, Socrates realized that the oracle had been right.
+
+Socrates felt that it was necessary to establish a solid foundation for our knowledge. He believed that this foundation lay in man's reason. With his unshakable faith in human he was decidedly a rationalist.
+
+The Right Insight Leads to the Right Action
+
+As I have mentioned earlier, Socrates claimed that he was guided by a divine inner voice, and that this "conscience" told him what was right. "He who knows what good is will do good," he said.
+
+By this he meant that the right insight leads to the right action. And only he who does right can be a "virtuous man." When we do wrong it is because we don't know any better. That is why it is so important to go on learning. Socrates was concerned with finding clear and universally valid definitions of right and wrong. Unlike the Sophists, he believed that the ability to distinguish between right and wrong lies in people's reason and not in society.
+
+You may perhaps think this is last part is a bit too obscure, Sophie. Let me put it like this: Socrates thought that no one could possibly be happy if they acted against their better judgment. And he who knows how to achieve happiness will do so. Therefore, he who knows what is right will do right. Because why would anybody choose to be unhappy?
+
+What do you think, Sophie? Can you live a happy life if you continually do things you know deep down are wrong? There are lots of people who lie and cheat and speak ill of others. Are they aware that these things are not right - or fair, if you prefer? Do you think these people are happy?
+
+Socrates didn't.
+
+When Sophie had read the letter, she quickly put it in the cookie tin and crawled out into the garden. She wanted to go indoors before her mother got back with the shopping in order to avoid any questions about where she had been. And she had promised to do the dishes.
+
+She had just filled the sink water when her mother came staggering in with two huge shopping bags. Perhaps that was why her mother said, "You are rather preoccupied these days, Sophie."
+
+Sophie didn't know why she said it; the words just tumbled out of her mouth: "So was Socrates."
+
+"Socrates?"
+
+Her mother stared at her, wide-eyed.
+
+"It was just so sad that he had to die as a result," Sophie went on thoughtfully.
+
+"My goodness! Sophie! I don't know what I'm to do!"
+
+"Neither did Socrates. All he knew was that he knew nothing. And yet he was the cleverest person in Athens."
+
+Her mother was speechless.
+
+Finally she said, "Is this something you've learned at school?"
+
+Sophie shook her head energetically.
+
+"We don't learn anything there. The difference between school teachers and philosophers is that school-teachers think they know a lot of stuff that they try to force down our throats. Philosophers try to figure things out together with the pupils."
+
+"Now we're back to white rabbits again! You know something? I demand to know who your boyfriend really is. Otherwise I'll begin to think he is a bit disturbed."
+
+Sophie turned her back on the dishes and pointed at her mother with the dish mop.
+
+"It's not him who's disturbed. But he likes to disturb others - to shake them out of their rut."
+
+"That's enough of that! I think he sounds a bit too impertinent." Sophie turned back to the dishes.
+
+"He is neither impertinent nor pertinent, " said Sophie. "But he is trying to reach real wisdom. That's the great difference between al real joker and all the other cards in the deck."
+
+"Did you say joker?"
+
+Sophie nodded. "Have you ever thought about the fact that there are a lot of hearts and diamonds in a pack of cards? And a lot of spades and clubs. But there's only one joker."
+
+"Good grief, how you talk back, Sophie!"
+
+"And how you ask!"
+
+Her mother had put all the groceries away. Now she took the newspaper and went into the living room. Sophie thought she closed the door more loudly than usual.
+
+Sophie finished doing the dishes and went upstairs to her room. She had put the red silk scarf on top shelf of the closet with the Lego blocks. She took it down and examined it carefully.
+
+Hilde ...
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
