@@ -8,7 +8,7 @@
 * [Chapter.05 Democritus](chapter05-democritus.md)
 * [Chapter.06 Fate](chapter06-fate.md)
 * [Chapter.07 Socrates](chapter07-socrates.md)
-* Chapter.08 Ahtens
+* [Chapter.08 Ahtens](chapter08-ahtens.md)
 * Chapter.09 Plato
 * Chapter.10 The Major's Cabin
 * Chapter.11 Aristotle
