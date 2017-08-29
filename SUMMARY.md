@@ -9,7 +9,7 @@
 * [Chapter.06 Fate](chapter06-fate.md)
 * [Chapter.07 Socrates](chapter07-socrates.md)
 * [Chapter.08 Athens](chapter08-ahtens.md)
-* Chapter.09 Plato
+* [Chapter.09 Plato](chapter09-plato.md)
 * Chapter.10 The Major's Cabin
 * Chapter.11 Aristotle
 * Chapter.12 Hellenism
