@@ -36,7 +36,57 @@ Something the philosopher had said about Socrates came into her mind. Socrates h
 
 While she sat thinking, there was a sudden rustling in the hedge, and the sound of something puffing and blowing like a steam engine. The next second, the golden Labrador slipped into the den. It had a large envelope in its mouth.
 
-"Hermes!" cried Sophie. "Drop it! Drop it!" The dog dropped the envelope in Sophie's lap, and Sophie stretched out her hand to pat the dog's head.
+"Hermes!" cried Sophie. "Drop it! Drop it!" The dog dropped the envelope in Sophie's lap, and Sophie stretched out her hand to pat the dog's head. "Good boy, Hermes!" she said. The dog lay down and allowed itself to be patted. But after a couple of minutes it got up and began to push its way back through the hedge the same way it had come in. Sophie followed with the brown envelope in her hand. She crawled through the dense thicket and was soon outside the garden.
+
+Hermes had already started to run toward the edge of the woods, and Sophie followed a few yards behind. Twice the dog turned around and growled, but Sophie was not to be deterred.
+
+This time she was determined to find the philosopher - even if it meant running all the way to Athens.
+
+The dog ran faster and suddenly turned off down a narrow path. Sophie chased him, but after a few minutes he turned and faced her, barking like a watchdog. Sophie still refused to give up, taking the opportunity to lesson the distance between them.
+
+Hermes turned and raced down the path. Sophie realized that she would never catch up with him. She stood quite still for what seemed like an eternity, listening to him running farther and farther away. Then all was silent.
+
+She sat down on a tree stump by a little clearing in the woods. She still had the brown envelope in her hand. She open it, drew out several typewritten pages, and began to read:
+
+PLATO'S ACADEMY
+
+Thank you for the pleasant time we spent together, Sophie. In Athens, I mean. So now I have at least introduced myself. And since I have also introduced Plato, we might as well begin without further ado.
+
+Plato \(428 - 347 B.C.\) was twenty-nine years old when Socrates drank the hemlock. He had been a pupil of Socrates for some time and had followed his trial very closely. The fact that Athens could condemn its noblest citizen to death did more than make a profound impression on him. It was to shape the course of his entire philosophic endeavor.
+
+To Plato, the death of Socrates was a striking example of the conflict that can exist between society as it really is and the true or ideal society. Plato's first deed as a philosopher was to publish Socrates' Apology, an account of his plea to the large jury.
+
+As you will no doubt recall, Socrates never wrote anything down, although many of the pre-Socrates did. The problem is that hardly any of their written material remains. But in the case of Plato, we believe that all this principal works have been preserved. \(In addition to Socrates' Apology, Plato wrote a collection of Epistles and about twenty-five philosophical Dialogues.\)
+
+That we have these works today is due not least to the fact that Plato set up his own school of philosophy in a grove not far from Athens, named after the legendary Greek hero Academus. The school was therefore known as the Academy. \(Since then, many thousands of "academies" have been established all over the world. We still speak of "academics" and "academic subjects."\)
+
+The subjects aught at Plato's Academy were philosophy, mathematics, and gymnastics - although perhaps "taught" is hardly the right word. Lively discourse was considered most important at Plato's Academy. So it was not purely by chance that Plato's writings took the form fo dialogues.
+
+The Eternally True, Eternally Beautiful, and Eternally Good.
+
+In the introduction to this course I mentioned that it could often be a good idea to ask what a particular philosopher's project was. So now I ask: what were the problems Plato was concerned with?
+
+Briefly, we can establish that Plato was concerned with the relationship between what is eternal and immutable, on the on hand, and what "flows," on the other. \(Just like the pre-Socrates, in fact.\) We've seen how the Sophists and Socrates turned their attention from questions of natural philosophy to problems related to man and society. And yet in one sense, even Socrates and the Sophists were preoccupied with the relationship between the eternal and immutable, and the "flowing." They were interested in the problem as it related to human morals and society's ideals or virtues. Very briefly, the Sophists thought that perceptions of what was right or wrong varied from one city-state to another, and from on generation to the next. So right and wrong was something that "flowed." This was totally unacceptable to Socrates. He believed in the existence of eternal and absolute rules for what was right or wrong. By using our common sense we can all arrive at these immutable norms, since human reason is in fact eternal and immutable.
+
+Do you follow, Sophie? Then along comes Plato. He is concerned with both what is eternal and immutable in nature and what is eternal and immutable as regards morals and society. To Plato, these two problems were one and the same. He tried to grasp a "reality" that was eternal and immutable.
+
+And to be quite frank, that is precisely what we need philosophers for. We do not need them to choose a beauty queen or the day's bargain in tomatoes. \(This is why they are often unpopular!\) Philosophers will try to ignore highly topical affairs and instead try to draw people's attention to what is eternally "true," eternally "beautiful," and eternally "good."
+
+We can thus begin to glimpse at least the outline of Plato's philosophical project. But let's take on thing at a time. We are attempting to understand an extraordinary mind, a mind that was to have a profound influence on all subsequent European philosophy.
+
+The World of Ideas
+
+Both Empedocles and Democritus had drawn attention to the fact that although in the natural world everything "flows," there must nevertheless be "something" that never changes \(the "four roots," or the "atoms"\). Plato agreed with the proposition as such - but in quite a different way.
+
+Plato believed that everything tangible in nature "flows." So there are no "substances" that do not dissolve. Absolutely everything that belongs to the "material world" is made of material that time can erode, but everything is made after a timeless "mold" for "form" that is eternal and immutable.
+
+You see? No, you don't.
+
+Why are horses the same, Sophie? You probably don't think they are at all. But there is something that all horses have in common, something that enables us to identify them as horses. A particular horse "flows," naturally. It might be old and lame, and in time it will die. But the "form" of the horse is eternal and immutable.
+
+
+
+
 
 
 
