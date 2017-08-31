@@ -160,7 +160,7 @@ Plato now imagines a state built up exactly like the tripartite human body. Wher
 
 Like every aspect of Plato's philosophy, his political philosophy is characterized by rationalism. The creation of a good state depends on its being governed with reason. Just as the head governs the body, so philosophers must rule society.
 
-Let us attempt a simple illustration of the relationship between the three parts of man and the state: 
+Let us attempt a simple illustration of the relationship between the three parts of man and the state:
 
 BODY SOUL VIRTUE STATE
 
@@ -184,73 +184,11 @@ It was almost as if she had herself emerged from an underground cave. Sophie fel
 
 She was not sure Plato was right in everything he had said about the eternal patterns, but it was a beautiful thought that all living things were imperfect copies of the eternal forms in the world of ideas. Because wasn't it true that all flowers, trees, human beings, and animals were "imperfect"?
 
-Everything she saw around her was so beautiful and so alive that Sophie had to rub her eyes to really believe it. But nothing she was looking at now would last. And yet - in a hundred years the same flowers and the same animals would be here again. Even if every single flower and every single animal should fade away and be forgotten, there would be something that "recollected" how it all looked. 
+Everything she saw around her was so beautiful and so alive that Sophie had to rub her eyes to really believe it. But nothing she was looking at now would last. And yet - in a hundred years the same flowers and the same animals would be here again. Even if every single flower and every single animal should fade away and be forgotten, there would be something that "recollected" how it all looked.
 
 Sophie gazed out at the world. Suddenly a squirrel ran up the trunk of a pine tree. It circled the trunk a few times and disappeared into the branches.
 
 "I've seen you before!" thought Sophie. She realized that maybe it was not the same squirrel that she had seen previously, but she had seen the same "form." For all she knew, Plato could have been right. Maybe she really had seen the eternal "squirrel" before - in the world of ideas, before her soul had taken residence in a human body.
 
-Could it be true that she had lived before? Had her soul existed before it got a body to move around in? ANd was it really true that she carried a little golden nugget inside her - a jewel that cannot be corroded by time, a soul that would live on when her own body grew old and died?
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Could it be true that she had lived before? Had her soul existed before it got a body to move around in? And was it really true that she carried a little golden nugget inside her - a jewel that cannot be corroded by time, a soul that would live on when her own body grew old and died?
 
