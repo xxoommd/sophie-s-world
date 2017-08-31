@@ -84,6 +84,128 @@ You see? No, you don't.
 
 Why are horses the same, Sophie? You probably don't think they are at all. But there is something that all horses have in common, something that enables us to identify them as horses. A particular horse "flows," naturally. It might be old and lame, and in time it will die. But the "form" of the horse is eternal and immutable.
 
+That which is eternal and immutable, to Plato, is therefore not a physical "basic substance," as it was for Empedocles and Democritus. Plato's conception was of eternal and immutable patterns, spiritual and abstract in their nature that all things are fashioned after.
+
+Let me put it like this: The pre-Socratics had given a reasonably good explanation of natural change without having to presuppose that anything actually "changed." In the midst of nature's cycle there were some eternal and immutable smallest elements that did not dissolve, they thought. Fair enough, Sophie! But they had no reasonable explanation for how these "smallest elements" that were once building blocks in a horse could suddenly whirl together four or five hundreds years later and fashion themselves into a completely new horse. Or an elephant or a crocodile, for that matter. Plato's point was that Democritus' atoms never fashioned themselves into an "eledile" or a "crocophant."
+
+If you already understand what I am getting at, you may skip this next paragraph. But just in case, I will clarify: You have a box of Lego and you build a Lego horse. You then take it apart and put the blocks back in the box. You cannot expect to make a new horse just by shaking the box. How could Lego blocks of their own accord find each other and become a new horse again? No, you have to rebuild the horse, Sophie. And the reason you can do it is that you have a picture in your mind of what the horse looked like. The Lego horse is made from a model which remains unchanged from horse to horse.
+
+How did you do with the fifty identical cookies? Let us assume that you have dropped in from outer space and have never seen a baker before. You stumble into a tempting bakery - and there you catch sight of fifty identical gingerbread men on a shelf. I imagine you would wonder how they could be exactly alike. It might well be that one of them has an arm missing, another has lost a bit of its head, and a third has a funny bump on its stomach. But after careful thought, you would nevertheless conclude that all gingerbread men have something in common. Although one of them is perfect, you would suspect that they had a common origin. You would realize that all the cookies were formed in the same mold. And what is more, Sophie, you are now seized by the irresistible desire to see this mold. Because clearly, the mold itself must be utter perfection - and in a sense, more beautiful - in comparison with these crude copies.
+
+If you solved this problem all by yourself, you arrived at the philosophical solution in exactly the same way that Plato did.
+
+Like most philosophers, he "dropped in from outer space." \(He stood up on the very tip of one of the fine hairs of the rabbit's fur.\) He was astonished at the way all natural phenomena could be so alike, and he concluded that it had to be because there are a limited number of forms "behind" everything we see around us. Plato called these forms ideas. Behind every horse, pig, or human being, there is the "idea horse," "idea pig," and "idea human being." \(In the same way, the bakery we spoke of can have gingerbread men, gingerbread horses, and gingerbread pigs. Because every self-respecting bakery has more than on mold. But one mold is enough for each type of gingerbread cookie.\)
+
+Plato came to the conclusion that there must be a reality behind the "material world." He called this reality the world of ideas; it contained the eternal and immutable "patterns" behind the various phenomena we come across in nature. This remarkable view is known as Plato's theory of ideas.
+
+True Knowledge
+
+I'm sure you've been following me, Sophie dear. But you may be wondering whether Plato was being serious. Did he really believe that forms like these actually existed in a completely different reality?
+
+He probably didn't believe it literally in the same way for all his life, but in some of his dialogues that is certainly how he means to be understood. Let us try to follow his train of thought.
+
+A philosopher, was we have seen, tries to grasp something that is eternal and immutable. It would serve no purpose, for instance, to write a philosophic treatise on the existence of a particular soap bubble. Partly because one would hardly have time to study it in depth before it burst, and partly because it would probably be rather difficult to find a market for a philosophic treatise on something nobody has ever seen, and which only existed for five seconds.
+
+Plato believed that everything we see around us in nature, everything tangible, can be likened to a soap bubble, since nothing that exists in the world of the senses is lasting. We know, of course, that sooner or later every human being and every animal will die and decompose. Even a block of marble changes and gradually disintegrates. \(The Acropolis is falling into ruin, Sophie! It is a scandal, but that's the way it is.\) Plato's point is that we can never have true knowledge of anything that is in a constant state of change. We can only have opinions about things that belong to the world of the senses, tangible things. We can only have true knowledge of things that can be understood with our reason.
+
+All right, Sophie, I'll explain it more clearly: a gingerbread man can be so lopsided after all that baking that it can be quite hard to see what it is meant to be. But having seen dozens of gingerbread men that were more or less successful, I can be pretty sure what the cookie mold was like. I can guess, even though I have never seen it. It might not even be an advantage to see the actual mold with my own eyes because we cannot always trust the evidence of our senses. The faculty of vision can vary from person to person. On the other hand, we can rely on what our reason tells us because that is the same for everyone.
+
+if you are sitting in a classroom with thirty other pupils, and the teacher asks the class which color of the rainbow is the prettiest, he will probably get a lot of different answers. But if he asks what 8 times 3 is, the whole class will - we hope - give the same answer. Because now reason is speaking and reason is, in a way, the direct opposite of "thinking so" or "feeling." We could say that reason is eternal and universal precisely because it only expresses eternal and universal states.
+
+Plato found mathematics very absorbing because mathematical states never change. They are therefore states we can have true knowledge of. But here we need an example.
+
+Imagine you find a round pinecone out in the wood. Perhaps you say you "think" it looks completely round, whereas Joanna insists it is a bit flattened on on side. \(Then you start arguing about it!\) But you cannot have true knowledge of anything you can perceive with your eyes. On the other hand you can say with absolute certainty that the sum of the angles in a circle is 360 degrees. In this case you would be talking about an ideal circle which might not exist in the physical world but which you can clearly visualize. \(You are dealing with the hidden gingerbread man mold and not with the particular cookie on the kitchen table.\)
+
+In short, we can only have inexact conceptions of things we perceive with our senses. But we can have true knowledge of things we understand with our reason. The sum of the angles in a triangle will remain 180 degrees to the end of time. And similarly the "idea" horse will walk on four legs even if all the horses in the sensory world break a leg.
+
+An Immortal Soul
+
+As I explained, Plato believed that reality is divided into two regions.
+
+One region is the world of the senses, about which we can only have approximate or incomplete knowledge by using our five\(approximate or incomplete\) senses. In this sensory world, "everything flows" and nothing is permanent. Nothing in the sensory world is, there are only things that come to be and pass away.
+
+The other region is the world of ideas, about which we can have true knowledge by using our reason. This world of ideas cannot be perceived by the senses, but the ideas \(or forms\) are eternal and immutable.
+
+According to Plato, man is a dual creature. We have a body that "flows," is inseparably bound to the world of the senses, and is subject to the same fate as everything else in this world - a soap bubble, for example. All our senses are based in the body and are consequently unreliable. But we also have an immortal soul - and this soul is the realm of reason. And not being physical, the soul can survey the world of ideas.
+
+But that's not all, Sophie. IT'S NOT ALL!
+
+Plato also believed that the soul existed before it inhabited the body, \(it was lying on a shelf in the closet with all the cookie molds.\) But as soon as the soul wakes up in a human body, it has forgotten all the perfect ideas. Then something starts to happen. In fact, a wondrous process begins.As the human being discovers the various forms in the natural world, a vague recollection stirs his soul. He sees a horse - but an imperfect horse. \(A gingerbread horse!\) The sight of it is sufficient to awaken in the soul a faint recollection of the perfect "horse," which the soul once saw in the world of ideas, and this stirs the soul with a yearning to return to its true realm. Plato calls this yearning eras - which means love. The soul, then, experiences a "longing to return to its true origin." From now on, the body and the whole sensory world is experienced as imperfect and in insignificant. The soul yearns to fly home on the wings of love to the world of ideas. It longs to be freed from the chains of the body.
+
+Let me quickly emphasize that Plato is describing an ideal course of life, since by no means all humans set the soul free to begin tis journey back to the world of ideas. Most people cling to the sensory world's "reflections" of ideas. They see a horse - and another horse. But they never see that of which every horse is only a feeble imitation. \(They rush into the kitchen and stuff themselves with gingerbread cookies without so much as a thought as to where they came from.\) What Plato describes is the philosophers' way. His philosophy can be read as a description of philosophic practice.
+
+When you see a shadow, Sophie, you will assume that there must be something casting the shadow. You see the shadow of an animal. You think it may be a horse, but you are not quite sure. So you turn around and see the horse itself - which of course is infinitely more beautiful and sharper in outline than the blurred "horse-shadow." Plato believed similarly that all natural phenomena are merely shadows of the eternal forms or ideas. But most people are content with a life among shadows. They give no thought to what is casting the shadows. They think shadows are all there are, never realizing even that they are, in fact, shadows. And thus they pay no heed to the immortality or their own soul.
+
+Out of the Darkness of the Cave
+
+Plato relates a myth which illustrates this. We call it the Myth of the Cave. I'll retell it in my own words.
+
+Imagine some people living in an underground cave. They sit with their backs to the mouth of the cave with their hands and feet bound in such a way that they can only look at the back wall of the cave. Behind them is a high wall, and behind that wall pass human-like creatures, holding up various figures above the top of the wall. Because there is a fire behind these figures, they cast flickering shadows on the back wall of the cave. So the only thing the cave dwellers can see is this shadow play. They have been sitting in this position since they were born, so they think these shadows are all there are.
+
+Imagine now that one of the cave dwellers manages to free himself from his bonds. The first thing he asks himself is where all these shadows on the cave wall come from. What do you think happens when he turns around and sees the figures being held up above the wall? To begin with he is dazzled by the sharp sunlight. He is also dazzled by the clarity of the figures because until now he has only seen their shadow. If he manages to climb over the wall and get past the fire into the world outside, he will be even more dazzled. But after rubbing his eyes he will be struck by the beauty of everything. For the first time he will see colors and clear shapes. He will see the real animals and flowers that the cave shadows were only refections of. But even now he will ask himself where all the animals and flowers come from. Then he will see the sun in the sky, and realize that this is what gives life to these flowers and animals, just as the fire made the shadows visible.
+
+The joyful cave dweller could now have gone skipping away into the countryside, delighting in his new-found freedom. But instead he thinks of all the others who are still down in the cave. He goes back. Once there, he tries to convince the cave dwellers that the shadows on the cave wall are but flickering reflections of "real" things. But they don't believe him. They point to the cave wall and say that what they see is all there is. Finally they kill him.
+
+What Plato was illustrating in the Myth of the Cave is the philosopher's road from shadowy images to the true ideas behind all natural phenomena. He was probably also thinking of Socrates, whom the "cave dwellers" killed because he disturbed their conventional ideas and tried to light the way to true insight. The Myth of the Cave illustrates Socrates' courage and his sense of pedagogic responsibility.
+
+Plato's point was that the relationship between the darkness of the cave and the world beyond corresponds to the relationship between the forms of the natural world and the world of ideas. Not that he meant that the natural world is dark and dreary, but that it is dark and dreary in comparison with the clarity of ideas. A picture of a beautiful landscape is not dark and dreary either. But it is only a picture.
+
+The Philosophic State
+
+The Myth of the Cave is found in Plato's dialogue the Republic. In this dialogue Plato also presents a picture of the "ideal state," that is to say an imaginary, ideal, or what we would call a Utopian, state. Briefly, we could say that Plato believed the state should be governed by philosophers. He bases his explanation of this on the construction of the human body.
+
+According to Plato, the human body is composed of three parts: the head, the chest, and the abdomen. For each of these three parts there is a corresponding faculty of the soul. Reason belongs to the head, will belongs to the chest, and appetite belongs to the abdomen. Each of these soul faculties also has an ideal, or "virtue." Reason aspires to wisdom, Will aspires to courage, and Appetite must be curbed so that temperance can be exercised. Only when the three parts of the body function together as a unity do we get a harmonious or "virtuous" individual. At school, a child must first learn to curb its appetites, then it must develop courage, and finally reason leads to wisdom.
+
+Plato now imagines a state built up exactly like the tripartite human body. Where the body has head, chest, and abdomen, the State has rulers, auxiliaries, and laborers \(farmers, for example\). Here Plato clearly uses Greek medical science as his model. Just as a healthy and harmonious man exercises balance and temperance, so a "virtuous" state is characterized by everyone knowing their place in the overall picture.
+
+Like every aspect of Plato's philosophy, his political philosophy is characterized by rationalism. The creation of a good state depends on its being governed with reason. Just as the head governs the body, so philosophers must rule society.
+
+Let us attempt a simple illustration of the relationship between the three parts of man and the state: 
+
+BODY SOUL VIRTUE STATE
+
+head reason wisdom rulers
+
+chest will courage auxiliaries
+
+abdomen appetite temperance laborers
+
+Plato's ideal state is not unlike the old Hindu caste system, in which each and every person has his or her particular function for the good of the whole. Even before Plato's time the Hindu caste system had the same tripartite division between the auxiliary caste \(or priest caste\), the warrior caste, and the laborer caste. Nowadays we would perhaps call Plato's state totalitarian. But it is worth nothing that he believed women could govern just as effectively as men for the simple reason that the rulers govern by virtue of their reason. Women, he asserted, have exactly the same powers of reasoning as men, provided they get the same training and are exempt from child rearing and housekeeping. In Plato's idea state, rulers and warriors are not allowed family life or private property. The rearing of children is considered too important to be left to the individual and should be the responsibility of the state. \(Plato was the first philosopher to advocate state-organized nursery schools and full-time education.\)
+
+After a number of significant political setbacks, Plato wrote the tows, in which he described the "constitutional state" as the next-best state. He now reintroduced both private property and family ties. Women's freedom thus became more restricted. However, he did say that a state that does not educate and train women is like a man who only trains his right arm.
+
+All in all, we can say that Plato had a positive view of women - considering the time he lived in. In the dialogue Symposium, he gives a woman, the legendary priestess Diotima, the honor of having given Socrates his philosophic insight.
+
+I'll say no more!
+
+While Sophie had been reading about Plato, the sun had risen over the woods to the east. It was peeping over the horizon just as she was reading how one man clambered out of the cave and blinked in the dazzling light outside.
+
+It was almost as if she had herself emerged from an underground cave. Sophie felt that she saw nature in a completely different way after reading about Plato. It was rather like having been color-blind. She had seen some shadows but had not seen the clear ideas.
+
+She was not sure Plato was right in everything he had said about the eternal patterns, but it was a beautiful thought that all living things were imperfect copies of the eternal forms in the world of ideas. Because wasn't it true that all flowers, trees, human beings, and animals were "imperfect"?
+
+Everything she saw around her was so beautiful and so alive that Sophie had to rub her eyes to really believe it. But nothing she was looking at now would last. And yet - in a hundred years the same flowers and the same animals would be here again. Even if every single flower and every single animal should fade away and be forgotten, there would be something that "recollected" how it all looked. 
+
+Sophie gazed out at the world. Suddenly a squirrel ran up the trunk of a pine tree. It circled the trunk a few times and disappeared into the branches.
+
+"I've seen you before!" thought Sophie. She realized that maybe it was not the same squirrel that she had seen previously, but she had seen the same "form." For all she knew, Plato could have been right. Maybe she really had seen the eternal "squirrel" before - in the world of ideas, before her soul had taken residence in a human body.
+
+Could it be true that she had lived before? Had her soul existed before it got a body to move around in? ANd was it really true that she carried a little golden nugget inside her - a jewel that cannot be corroded by time, a soul that would live on when her own body grew old and died?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
