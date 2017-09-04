@@ -144,11 +144,11 @@ P.P.S. Is the mirror with the brass frame above the white chest of drawers an or
 
 With regards from your sincerely interested pupil, SOPHIE
 
-Sophie read the letter through twice before she put it in the envelope. She thought it was less formal than the previous letter she had written. Before she went downstairs to the kitchen to get a lump of sugar she looked at the note with the day's questions: 
+Sophie read the letter through twice before she put it in the envelope. She thought it was less formal than the previous letter she had written. Before she went downstairs to the kitchen to get a lump of sugar she looked at the note with the day's questions:
 
 "What came first - the chicken or the "idea" chicken?
 
-This question was just s tricky as the old riddle of the chicken and the egg. There would be no chicken without the egg, and no egg without the chicken. Was it really just as complicated to figure out whether the chicken or the "idea" chicken came first? Sophie understood what Plato meant. He meant that the "idea" chicken had existed in the world of ideas long before chickens existed in the sensory world. According to Plato, the soul had "seen" the "idea" chicken before it took up residence in a body. But wasn't this just where Sophie thought Plato must be mistaken? How could a person who had never seen a live chicken or a picture of a chicken ever have any "idea" of a chicken? Which brought her to the next question: 
+This question was just s tricky as the old riddle of the chicken and the egg. There would be no chicken without the egg, and no egg without the chicken. Was it really just as complicated to figure out whether the chicken or the "idea" chicken came first? Sophie understood what Plato meant. He meant that the "idea" chicken had existed in the world of ideas long before chickens existed in the sensory world. According to Plato, the soul had "seen" the "idea" chicken before it took up residence in a body. But wasn't this just where Sophie thought Plato must be mistaken? How could a person who had never seen a live chicken or a picture of a chicken ever have any "idea" of a chicken? Which brought her to the next question:
 
 Are we born with innate "ideas"? Most unlikely, thought Sophie. She could hardly imagine a newborn baby being especially well equipped with ideas. One could obviously never be sure, because the fact that the baby had no language did not necessarily mean that it had no ideas in its head. But surely we have to see things in the world before we can know anything about them.
 
@@ -156,27 +156,31 @@ Are we born with innate "ideas"? Most unlikely, thought Sophie. She could hardly
 
 For instance, she did not think a plant had a very complicated emotional life. Who had ever heard of a bluebell with a broken heart? A plant grows, takes nourishment, and produces seeds so that it can reproduce itself. That's about all one could say about plants. Sophie concluded that everything that applied to plants also applied to animals and humans. But animals had other attributes as well. They could move, for example. \(When did a rose ever run a marathon?\) It was a bit harder to point to any differences between animals and humans. Humans could think, but couldn't animals do so as well? Sophie was convinced that her cat Sherekan could think. At least, it could be very calculating. But could it reflect on philosophical questions? Could a cat speculate about the difference between a plant, an animal, and a human? Hardly! A cat could probably be either contented or unhappy, but did it ever ask itself if there was a God or whether it had an immortal soul? Sophie thought that was extremely doubtful. But the same problem was raised here as with the baby and the innate ideas. It was just as difficult to talk to a cat about such questions as it would be to discuss them with a baby.
 
+"Why does it rain?" Sophie shrugged her shoulders. It probably rains because seawater evaporates and the clouds condense into raindrops. Hadn't she learnt that in the third grade? Of course, one could always say that it rains so that plants and animals can grow. But was that true? Had a shower any actual purpose?
 
+The last question definitely had something to do with purpose: "What does it take to live a good life?"
 
+The philosopher had written something about this quite early on in course. Everybody needs food, warmth, love, and care. Such basics were the primary condition for a good life, at any rate. Then he had pointed out that people also needed to find answers to certain philosophical questions. It was probably also quite important to have a job you liked. If you hated traffic, for instance, you would not be very happy as a taxi driver. And if you hated doing homework it would probably be a bad idea to become a teacher. Sophie loved animals and wanted to e a vet. But in any case she didn't think it was necessary to win a million in the lottery to live a good life.
 
+Quite the opposite, more likely. There was a saying:
 
+The devil finds work for idle hands.
 
+Sophie stayed in her room until her mother called her down to a big midday meal. She had prepared sirloin steak and baked potatoes. There were cloudberries and cream for dessert.
 
+They talked about all kinds of things. Sophie's mother asked her how she wanted to celebrate her fifteenth birthday. It was only a few weeks away.
 
+Sophie shrugged.
 
+"Aren't you going to invite anyone? I mean, don't you want to have a party?"
 
+"Maybe."
 
+"We could ask Martha and Anne Marie ... and Helen. And Joanna, of course. And Jeremy, perhaps. But that's for you to decide. I remember my own fifteenth birthday so clearly, you know. It doesn't seem all that long ago. I felt I was already quite grown up. Isn't is odd, Sophie! I don't feel I have changed at all since then."
 
+"You haven't. Nothing changes. You have just developed, gotten older..."
 
-
-
-
-
-
-
-
-
-
+"Mm ... that was a very grownup thing to say. I just think it's all happened so very quickly."
 
 
 
