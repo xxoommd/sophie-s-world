@@ -11,8 +11,8 @@
 * [Chapter.08 Athens](chapter08-ahtens.md)
 * [Chapter.09 Plato](chapter09-plato.md)
 * [Chapter.10 The Major's Cabin](chapter10-the-majors-cabin.md)
-* Chapter.11 Aristotle
-* Chapter.12 Hellenism
+* [Chapter.11 Aristotle](chapter11-aristotle.md)
+* [Chapter.12 Hellenism](chapter12-hellenism.md)
 * Chapter.13 The Postcards
 * Chapter.14 Two Cultures
 * Chapter.15 The Middle Ages
